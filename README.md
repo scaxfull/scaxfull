@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @scaxfull
 - 👀 I’m interested in many things
 - 🌱 I’m currently learning nothing
-- 💞️ I’m looking to collaborate on who knows :)
+- 💞️ I’m looking to collaborate on nothing
 - 📫 How to reach me > i reach you  if i need
 
 <!---
